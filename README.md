@@ -1,5 +1,7 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=mualani&label=(=^.^=)&color=lightgrey)<br>
+![](https://komarev.com/ghpvc/?username=mualani&label=(=^.^=)&color=lightgrey)<br><br>
 dni judelow fans<br>
-nazis bigots etc
+nazis bigots etc<br>
+i wont unhide u<br>
+<br>[help our people](https://helpourpeople.carrd.co/)<br>[boycott israel](https://boycott-israel.org/)
