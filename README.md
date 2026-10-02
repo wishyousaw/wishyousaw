@@ -4,7 +4,7 @@
 
 ![](https://file.garden/aVv63DlleiJPIk3x/columbina9.png)
 
-c*h is always encouraged. bmf
+be my friend! i ♡ socializing
 
 do not interact – judelow fans<br>
 boundary breakers, nazi/bigot<br>
