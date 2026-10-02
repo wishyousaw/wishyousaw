@@ -10,4 +10,4 @@ do not interact – judelow fans<br>
 boundary breakers, nazi/bigot<br>
 zionists, any basic dni criteria<br>
 
-[help our people](https://helpourpeople.carrd.co/) – [fight racism](https://www.un.org/en/fight-racism)<br>[boycott israel](https://boycott-israel.org/)
+[help our people](https://helpourpeople.carrd.co/) [boycott israel](https://boycott-israel.org/)
