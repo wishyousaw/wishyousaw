@@ -2,9 +2,8 @@
   
 ![](https://komarev.com/ghpvc/?username=mualani&label=(=^.^=)&color=lightgrey)<br><br>
 
-![](https://file.garden/aVv63DlleiJPIk3x/columbina9.png)
-
-be my friend! i ♡ socializing
+be my friend! i ♡ socializing<br>
+[sign my atabook](https://berries.atabook.org/)
 
 do not interact – judelow fans<br>
 boundary breakers, nazi/bigot<br>
