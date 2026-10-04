@@ -1,6 +1,7 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=mualani&label=(=^.^=)&color=lightgrey)<br><br>
+![](https://komarev.com/ghpvc/?username=mualani&label=(=^.^=)&color=lightgrey)
+
 
 be my friend! i ♡ socializing<br>
 [sign my atabook](https://berries.atabook.org/)
